@@ -1,3 +1,4 @@
 # helloworld
 JCCC github
-I would add to kids college funds. I would also buy a house in Florida and travel to Japan and Scotland. 
+I am hosting Thanksgiving for 13 people! I have never hosted before so it should be interesting. 
+:)
